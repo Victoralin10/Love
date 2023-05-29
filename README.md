@@ -1,2 +1,2 @@
 # Loveyou
-Par mi esposa
+Para mi esposa
